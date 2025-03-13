@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **Never skip A song of Taylor Swift ❤**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:</h3> Cecilia735528061@outlook.com
 <p align="left">
 </p>
 
